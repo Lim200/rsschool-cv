@@ -1,6 +1,5 @@
 # Sergei Kot  
 
-
 ___
 ### Contact information:
 
