@@ -1,5 +1,5 @@
 # Sergei Kot  
-![](github_PNG45.png)
+
 
 ___
 ### Contact information:
